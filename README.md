@@ -5,6 +5,8 @@ _**All Modes Are Made By Me**_
 
 Join Discord
 
+**CONTRIBUTE TO MY REPO (JOIN DISCORD / RAISE ISSUE)**
+
 **_Star And Fork (HeheBoii)_**
 
 Go To Plugins To Download My Mods
@@ -23,3 +25,4 @@ Give New Ideas By Raising Issue
 If You Use My Plugins (Decoded) Make Sure To Give Credit
 
 #Happy Sharing ❤️
+
